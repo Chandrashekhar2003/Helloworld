@@ -1,5 +1,5 @@
 bdhhshvsbfnfhn
-ranu  uanu
+ranu simbha
 vnwehhb
 fjhbvhjbvb
 pora pukkaaaaa em ledhu
