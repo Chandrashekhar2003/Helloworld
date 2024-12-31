@@ -1,7 +1,6 @@
 bdhhshvsbfnfhn
-ranu simbha
+fnevjuhf
+ranu ante ranu
 vnwehhb
 fjhbvhjbvb
-pora pukkaaaaa em ledhu
-dengey
-raa gajji raa
+
